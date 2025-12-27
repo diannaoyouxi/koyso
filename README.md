@@ -1,7 +1,7 @@
 <h2>Koyso官网入口，超好用的PC单机游戏下载|网页|打不开</h2>
 <p>Koyso 是一个专注于提供免费单机 PC 游戏资源的下载网站，自成立以来迅速在游戏爱好者中积累了广泛的知名度和用户基础。该平台以简洁直观的界面设计和便捷的下载方式著称，无需注册或登录即可直接下载游戏。Koyso 提供了丰富的游戏资源，涵盖动作、冒险、射击、策略、模拟等多种类型，包括热门游戏如《艾尔登法环》《赛博朋克2077》《荒野大镖客》等。此外，Koyso 的资源更新迅速，支持直链下载，下载速度极快，用户体验良好。</p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/4507.html" target="_blank"><strong>Koyso最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://koyso.wwwnav.com/" target="_blank"><strong>Koyso最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://appxiazai.pages.dev/" target="_blank"><strong>网友汇总的游戏网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
 <p><strong>海量资源</strong> Koyso 收录了数千款热门单机 PC 游戏资源，涵盖动作、冒险、射击、休闲等多种类型，满足不同玩家的需求。无论是新手玩家还是资深玩家，都可以在 Koyso 找到适合自己的游戏资源。</p>
